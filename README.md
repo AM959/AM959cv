@@ -1,2 +1,0 @@
-Sotiris Alfonsos
-=======
